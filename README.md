@@ -6,7 +6,7 @@
 
 "Capybara Go!" is an exciting adventure that brings players into a text-based, roguelike RPG world, developed by Habby. Known for titles like "Survivor.io" and "Archero," Habby has crafted a game where players guide a charming capybara through randomized events and obstacles. This mod version, Capybara Go MOD APK Unlimited Money, enhances the experience by providing unlimited resources, making the game even more enjoyable for young audiences.
 
->Download: [apybara Go MOD APK](https://s.net.vn/H2f8)
+>Download: [Capybara Go MOD APK](https://s.net.vn/H2f8)
 
 The game’s narrative draws players into a quirky journey where they encounter a wide range of animal companions and face unexpected challenges. Every decision counts, adding replayability and depth. With a minimalist, text-based interface, Capybara Go MOD APK places imagination at the forefront, offering a whimsical and engaging experience perfect for young adventurers.
 
